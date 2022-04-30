@@ -1,5 +1,4 @@
 - Hi, I’m @NatsumeLovesCoffee, but you can just call me Natsume
-- || She/Her || Bisexual || 18 || Jan 4th 🍰
 - I’m interested in science, art, books, and gaming.
 - I’m currently learning digital art, violin, a few languages, and chemistry.
 - I’m looking to collaborate on any art projects with other artists, or science projects too involving chemistry or dissecting.
